@@ -6,5 +6,7 @@ we also have a facebook group chat; if interested, either join the slack
 channel, or contact one of the people listed below to be added: 
 
 [Syzygy Antithesis](https://facebook.com/syzygy.antithesis)
+
 [Kloud Kyzer](https://www.facebook.com/Razor.Slit.SS)
+
 [Justin O'Fogartha](https://www.facebook.com/justin.ofogartha)
