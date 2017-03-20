@@ -8,6 +8,8 @@ channel, or contact one of the people listed below to be added:
 ---
 [Syzygy Antithesis](https://facebook.com/syzygy.antithesis)
 &nbsp;
+
 [Kloud Kyzer](https://www.facebook.com/Razor.Slit.SS)
 &nbsp;
+
 [Justin O'Fogartha](https://www.facebook.com/justin.ofogartha)
