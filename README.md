@@ -1,4 +1,4 @@
-# thesobertruth
+# The Sober Truth 
 welcome to a safe place for those who struggle with addiction
 
 you can join our [slack channel here](http://thesobertruth.slack.com)
